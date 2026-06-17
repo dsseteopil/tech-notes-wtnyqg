@@ -88,6 +88,7 @@
 - https://sites.google.com/view/swd42hfoyjb3izfaaw
 - https://sites.google.com/view/pb6mqpq2u3vkgb0exv
 - https://sites.google.com/view/qmotonb5ccne5ctr26
+- http://c.kfmail.top/c/tech-notes-wtnyqg
 - https://sites.google.com/view/rnj74qlr9ciq55rapt
 - https://sites.google.com/view/qdqmyed6mg7xa31usd
 - https://sites.google.com/view/es69r4jhnfl6r061fu
@@ -163,6 +164,7 @@
 - https://sites.google.com/view/jr9wa7kv0cvdil6zmu
 - https://sites.google.com/view/aahr51kyqxjty564c7
 - https://sites.google.com/view/lrcq58g36lbzxgn72b
+- http://c.kfmail.top/c/tech-notes-wtnyqg
 - https://sites.google.com/view/p0btf7sj5q66s7r0pu
 - https://sites.google.com/view/m9ss20gvx2l3seatnp
 - https://sites.google.com/view/wtbf98m0ktob2jpppm
@@ -176,6 +178,7 @@
 - https://sites.google.com/view/hg4ylpsajgkf4ivao4
 - https://sites.google.com/view/vde39f7w0ew4pyxclh
 - https://sites.google.com/view/hy9upi6xort1um0z1r
+- http://c.kfmail.top/c/tech-notes-wtnyqg
 - https://sites.google.com/view/r0k5pesebav72qem0f
 - https://sites.google.com/view/pl03ptag7bu7bnspdq
 - https://sites.google.com/view/bobhivtootg48ecxer
