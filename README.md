@@ -72,6 +72,7 @@
 - https://sites.google.com/view/g0tg1rrvqw14owo9z5
 - https://sites.google.com/view/kzm2h4gcokdbyt7gld
 - https://sites.google.com/view/fjl1bbei5daebovlyq
+- http://43.133.171.72/c/tech-notes-wtnyqg
 - https://sites.google.com/view/qxe7m6ki3d3c5f35gn
 - https://sites.google.com/view/aw32l15qxbb9sxwy7j
 - https://sites.google.com/view/nh6hr65k6ijawqq58n
@@ -88,7 +89,6 @@
 - https://sites.google.com/view/swd42hfoyjb3izfaaw
 - https://sites.google.com/view/pb6mqpq2u3vkgb0exv
 - https://sites.google.com/view/qmotonb5ccne5ctr26
-- http://c.kfmail.top/c/tech-notes-wtnyqg
 - https://sites.google.com/view/rnj74qlr9ciq55rapt
 - https://sites.google.com/view/qdqmyed6mg7xa31usd
 - https://sites.google.com/view/es69r4jhnfl6r061fu
@@ -135,6 +135,7 @@
 - https://sites.google.com/view/yndewx0oeye9mmmbr9
 - https://sites.google.com/view/gzb4p95vn6hfcht2c2
 - https://sites.google.com/view/v6q8fn5efxfqbyt5n3
+- http://43.133.171.72/c/tech-notes-wtnyqg
 - https://sites.google.com/view/wz5k5k81pkyz88k9d1
 - https://sites.google.com/view/kwe9z9qt7svr9rv6kb
 - https://sites.google.com/view/q3sjkvg5y0m5m8lgmv
@@ -156,6 +157,7 @@
 - https://sites.google.com/view/kony5xl1gm1oe1n29g
 - https://sites.google.com/view/i668bo6uyg0mx6eyww
 - https://sites.google.com/view/tcbqmr6cx08qax0qnj
+- http://43.133.171.72/c/tech-notes-wtnyqg
 - https://sites.google.com/view/z0s4vqfkb2jtyllfk6
 - https://sites.google.com/view/sjsqktya7099btprj6
 - https://sites.google.com/view/ftab52icvsweikkcuo
@@ -164,7 +166,6 @@
 - https://sites.google.com/view/jr9wa7kv0cvdil6zmu
 - https://sites.google.com/view/aahr51kyqxjty564c7
 - https://sites.google.com/view/lrcq58g36lbzxgn72b
-- http://c.kfmail.top/c/tech-notes-wtnyqg
 - https://sites.google.com/view/p0btf7sj5q66s7r0pu
 - https://sites.google.com/view/m9ss20gvx2l3seatnp
 - https://sites.google.com/view/wtbf98m0ktob2jpppm
@@ -178,7 +179,6 @@
 - https://sites.google.com/view/hg4ylpsajgkf4ivao4
 - https://sites.google.com/view/vde39f7w0ew4pyxclh
 - https://sites.google.com/view/hy9upi6xort1um0z1r
-- http://c.kfmail.top/c/tech-notes-wtnyqg
 - https://sites.google.com/view/r0k5pesebav72qem0f
 - https://sites.google.com/view/pl03ptag7bu7bnspdq
 - https://sites.google.com/view/bobhivtootg48ecxer
